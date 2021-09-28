@@ -10,11 +10,11 @@ Zelf vind ik ze gewoon lekker om zo als koekje te eten en dan natuurlijk wel de 
 # Recept: Cigarettes Russes
 Voor zo’n 15-20 stuks
 
-90 gr patentbloem
-90 gr roomboter, zacht
-90 gr kristalsuiker
-90 gr eiwit
-snufje zout
+1. 90 gr patentbloem
+2. 90 gr roomboter, zacht
+3. 90 gr kristalsuiker
+4. 90 gr eiwit
+5. snufje zout
 
 # Bereiding:
 Klop de zachte boter en suiker tot bleek en glad. Meng het eiwit er goed door en voeg tot slot de bloem en zout toe. Roer goed tot een glad beslag en laat het nu nog 1 uur afgedekt rusten in de koelkast.
