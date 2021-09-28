@@ -8,7 +8,7 @@ Zelf vind ik ze gewoon lekker om zo als koekje te eten en dan natuurlijk wel de 
 
 ![alt text](https://i2.wp.com/gwennsbakery.nl/wp-content/uploads/2018/10/Cigarettes-Russes-Gwenns-Bakery.jpg?w=1185&ssl=1)
 # Recept: Cigarettes Russes
-Voor zo’n 15-20 stuks
+*Voor zo’n 15-20 stuks*
 
 1. 90 gr patentbloem
 2. 90 gr roomboter, zacht
