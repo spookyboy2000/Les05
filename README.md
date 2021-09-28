@@ -6,7 +6,7 @@ Cigarettes russes zijn heerlijk krokante opgerolde koekjes. Je kent ze wellicht 
 
 Zelf vind ik ze gewoon lekker om zo als koekje te eten en dan natuurlijk wel de huisgemaakte. Het beslag maak je in een handomdraai en lijkt eigenlijk heel erg op amandel tuiles. Wees wel erg snel bij het rollen van de koekjes voordat ze te hard worden en breken. Ik laat de koekjes in de oven zitten (de oven staat dan even uit) en haal ze er één voor één uit om te rollen. Dit werkt echt het beste en zo kun je ze allemaal makkelijk rollen.
 
-!(Cigarettes-Russes-Gwenns-Bakery.jpg)
+![alt text](https://i2.wp.com/gwennsbakery.nl/wp-content/uploads/2018/10/Cigarettes-Russes-Gwenns-Bakery.jpg?w=1185&ssl=1)
 # Recept: Cigarettes Russes
 Voor zo’n 15-20 stuks
 
